@@ -1,2 +1,3 @@
 # devss
-https://x.com/i/status/1910889727844024483 
+![image](https://github.com/user-attachments/assets/3621f437-47f4-484e-9c01-cbd32f45d03f)
+
